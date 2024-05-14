@@ -1,2 +1,2 @@
 **bem vindos**
-!{}(https://media.tenor.com/PKKCAakpBZIAAAAM/neyney-neymar.gif)
+![](https://media.tenor.com/PKKCAakpBZIAAAAM/neyney-neymar.gif]
